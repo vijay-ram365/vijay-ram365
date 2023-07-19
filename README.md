@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vijay-ram365
 - 👀 I’m interested in ...
-Video Games, Technology and Web Development.
+Video Games, Technology, and Web Development.
 - 🌱 I’m currently learning ... Web Development and Coding.
 - 📫 How to reach me ...Email: ramkissoon.vijay@gmail.com
 
